@@ -1,0 +1,3 @@
+Dario
+Gossolengo, Piacenza
+Frontend development Professional Certificate
